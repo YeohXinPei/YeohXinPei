@@ -4,8 +4,6 @@
 📫 How to reach me **yeohxinpei123@gmail.com**
 
 
-Portfolio Link : https://yeohxinpei.github.io/xinpei/
-
 <p align="left">
 </p>
 
